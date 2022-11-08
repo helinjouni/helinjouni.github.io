@@ -1,2 +1,0 @@
-# helinjouni.github.io
-Homepage
